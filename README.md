@@ -50,4 +50,4 @@ Crypto Coin Comparison Ltd. (2020) Coin market capitalization lists of crypto cu
 
 - - -
 
-© 2021 Trilogy Education Services, LLC, a 2U, Inc. brand. Confidential and Proprietary. All Rights Reserved.
+© 2022 Trilogy Education Services, LLC, a 2U, Inc. brand. Confidential and Proprietary. All Rights Reserved.
